@@ -1,0 +1,2 @@
+# stranica1
+Magic
